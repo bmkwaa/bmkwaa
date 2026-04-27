@@ -1,4 +1,4 @@
-## Hi there 👋
+<img width="736" height="736" alt="ꪆৎ kinger ဣ digital circus animiniz_ main character series" src="https://github.com/user-attachments/assets/246324db-946e-4434-9fdb-4c9016a42278" />
 
 <!--
 **bmkwaa/bmkwaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
