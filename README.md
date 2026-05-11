@@ -1,8 +1,8 @@
 <div align="center"> 
   
-[straw](https://kingertadccool.straw.page)
   
-<img width="736" height="736" alt="ꪆৎ kinger ဣ digital circus animiniz_ main character series" src="https://github.com/user-attachments/assets/246324db-946e-4434-9fdb-4c9016a42278" />
+<img width="512" height="525" alt="stars _l" src="https://github.com/user-attachments/assets/3680cd41-3165-400a-a8b0-4e683ae8ea37" />
+
 
 <!--
 **bmkwaa/bmkwaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
