@@ -1,6 +1,7 @@
 <div align="center"> 
   
-  
+[𝔤𝔲𝔫𝔰](https://guns.lol/bmmm)
+
 <img width="512" height="525" alt="stars _l" src="https://github.com/user-attachments/assets/3680cd41-3165-400a-a8b0-4e683ae8ea37" />
 
 
